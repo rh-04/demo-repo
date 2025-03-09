@@ -1,3 +1,3 @@
 # finally started learning 
 
-hello hello hello
+I have to finish this task. I am too lazy to finish anything I start. I have to change myself. It feels like I am a loser.
